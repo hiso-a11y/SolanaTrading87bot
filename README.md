@@ -1,0 +1,2 @@
+# SolanaTrading87bot
+MEMECOIN
